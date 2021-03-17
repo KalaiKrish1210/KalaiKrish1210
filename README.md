@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Kalai Selvan Krishnamoorthy
 - 👀 I’m interested in software developing.
-- 🌱 I’m currently learning job Searching.
+- 🌱 I’m currently searching for job.
 - 💞️ I’m looking to collaborate on new environment.
 - 📫 How to reach me Mail:kalaishakthi.mvk@gmail.com
                      Ph. No.: 8072273821
